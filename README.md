@@ -3,7 +3,7 @@
 👀 I’m interested in Computer PROGRAMMING. AKA Computer Science, computer Engineering, electronics Technology (ET, EET), Bio-Medical, IT Manager.  AKA Software ENGINEER, or SYSTEMS Engineer.
 
 - 🌱 I’m currently learning Computer Science at all Levels.  Have one (1) Graduate degree, so Learning, Java all the up to: FULL STACK, CLOUD Computing. 
-- 💞️ I’m looking to collaborate on Electrical engioneering problems.
+- 💞️ I’m looking to collaborate on Electrical engineering problems. Also, EE to provide Clean Water to Poor nations.  
 - 📫 How to reach me - contact me here.  
 - 😄 Pronouns: Mr. Donato, Senior Donato.
 - ⚡ Fun fact:  Using Electrical Wave analysis, (Or Mechanical Wave physics), to study the Stock markets.  
